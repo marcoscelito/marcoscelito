@@ -1,6 +1,6 @@
 eu sou marcos do primeiro ano
-18 anos  de idade 
- sou 
+18 anos  de idade  
 CONVERSO
-JOGA BOLA 
-ANDA DE BICICLETA
+⚽ JOGA BOLA 
+ 🚴‍♀️ ANDA DE BICICLETA
+ 
